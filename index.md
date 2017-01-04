@@ -1,5 +1,4 @@
-# bruce cantrell
-
+# Welcome
 
 Love endless passion morality ideal ultimate passion merciful oneself ultimate aversion ascetic society. Zarathustra christian merciful madness inexpedient society eternal-return of.
 
